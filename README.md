@@ -205,3 +205,10 @@ SOFTWARE.
 #### Other Licenses ####
 
 See links to licenses in the credits for respective libraries
+
+
+Do no Merge this PR, apologies for reaching out like this, but I need to discuss with you something about using your wordpress tutorial for a project of mine.
+Can I get any form of contact/gmail, won't be taking much time.
+My Gmail:  rohankumar37SIS@gmail.com
+My Twitter: https://x.com/cranekyle03
+pleasee I beg you...
